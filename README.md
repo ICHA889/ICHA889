@@ -9,3 +9,4 @@ ICHA889/ICHA889 is a ✨ special ✨ repository because its `README.md` (this fi
 You can click the Preview link to take a look at your changes.
 --->
 https://hiqsyksglb.miiqalvrtm.net/gs2c/html5Game.do?jackpotid=0&gname=Gates%20of%20Olympus&extGame=1&ext=0&cb_target=exist_tab&symbol=vs20olympgate&jurisdictionID=99&minilobby=false&mgckey=AUTHTOKEN@c1c4865232239dbc0e8e725f1a0ed0334123df6852a608d62abcc80dec812dd0~stylename@idn2_idntotob2b4~SESSION@2f057fff-526f-405a-abd3-cdcc7275d60a~SN@8e95b86b&tabName=
+https://www.5g4d.org/m/masuk2.php?act=login
